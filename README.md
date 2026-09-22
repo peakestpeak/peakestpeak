@@ -1,6 +1,7 @@
 ## Its me, JOHN PEAK!
 
-**'(Peakest/Peak/Wuz/Here)'**
+**(Peakest/Peak/Wuz/Here)**
+( i cant do jack shit
 
 - i be hailing from fuckall :fire:
 
