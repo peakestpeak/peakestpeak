@@ -1,4 +1,6 @@
-## Hi there 👋
+## Its me, JOHN PEAK!
+
+- i be hailing from fuckall :fire:
 
 <!--
 **peakestpeak/peakestpeak** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
